@@ -1,0 +1,1 @@
+# Sezar-Bulmaca-App-Privacy-Policy
